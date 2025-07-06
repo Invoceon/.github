@@ -1,1 +1,1 @@
-![Discord Server Banner 8](https://github.com/user-attachments/assets/f92a31b7-b18e-4129-8c5c-1cab4a89c1f4)
+![Twitter Header 7](https://github.com/user-attachments/assets/08dd728d-818a-4c17-9db9-4a963040b92d)
