@@ -1,1 +1,1 @@
-![Twitter Header 7](https://github.com/user-attachments/assets/08dd728d-818a-4c17-9db9-4a963040b92d)
+![2560x1440 Banner Color](https://github.com/user-attachments/assets/18d43a0f-dc73-40b5-b9e2-307eae58e343)
