@@ -1,1 +1,1 @@
-![New Project (25)](https://github.com/user-attachments/assets/b2d53553-7815-4049-a9fd-b609b3a886ef)
+<img width="2560" height="1440" alt="Discord Server Banner 8" src="https://github.com/user-attachments/assets/9f5e2b98-db98-404c-97aa-2554ba9b3dcd" />
